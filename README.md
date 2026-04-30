@@ -7,9 +7,9 @@ Me chamo Matheus Skubisz mais conehcido como Skubisz, Sou um estudante estou a a
 - 🔭 I
 - 🌱 
 - 👯 .
-- 🤔
+- 🤔 jogo volei 
 - 💬 
 - 📫 
 - 😄 
-- 
+- adro a prof de ia
 -->
